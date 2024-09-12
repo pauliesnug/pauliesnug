@@ -1,5 +1,3 @@
-hi hi hi hi hihihi hihihihihhiiiiiiiiii
+i'm pauline
 
-:3
-:3
-:3
+let's build cuteware! -- @NotNite
